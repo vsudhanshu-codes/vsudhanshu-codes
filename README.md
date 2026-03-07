@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **sudhanshuvishwakarma357@live.com** For Collaboration/Proj
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** Enter your email here
-- 😄 **Pronouns:** hello
+- 😄 **Pronouns:** Hi Harsh
 - ⚡ **Fun fact:** I Love code and code Love Me
 
 
